@@ -9,3 +9,5 @@
 
 🔰VIDEO LINK: https://drive.google.com/file/d/1JLGo1p3MTuGYUESR5-fRAncu0cwTQqf9/view
 
+🔰 PPT: https://drive.google.com/file/d/1JLGo1p3MTuGYUESR5-fRAncu0cwTQqf9/view?usp=share_link
+
